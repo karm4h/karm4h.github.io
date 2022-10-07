@@ -1,2 +1,2 @@
 # karm4h.github.io
-Personal Website
+Technical difficulties, please stand by! A personal CTI blog is otw...
